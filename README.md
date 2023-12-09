@@ -1,0 +1,1 @@
+hi, Im opu1ent. I go to school, I really like programming very much. I want to succeed in this field and prove to everyone that school education means nothing and that it does not give you absolute confidence that you will live successfully. I am from Russia
